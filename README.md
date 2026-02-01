@@ -1,4 +1,4 @@
-# Hi there! I'm Alya ☁️✨
+# Hi there! I'm Alya Nuha☁️✨
 
 ![Banner](https://raw.githubusercontent.com/mayhemantt/mayhemantt/main/assets/rainbow_divider.gif)
 
